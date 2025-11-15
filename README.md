@@ -1,4 +1,4 @@
-XDA Nobar / Navigation Gestures
+CinemaHD Nobar / Navigation Gestures copy
 ========
 
 
